@@ -9,7 +9,7 @@
 
 ## 시연영상
 
-https://youtu.be/pCr7TC-3skw
+[https://youtu.be/pCr7TC-3skw](https://youtu.be/LDfn6eBzGTU)
 
 ## 목차
 
